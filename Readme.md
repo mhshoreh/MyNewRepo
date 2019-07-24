@@ -1,1 +1,1 @@
-learn GitHub or not my baby.
+learn GitHub or not my baby. That is it,
